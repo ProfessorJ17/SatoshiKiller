@@ -8,6 +8,8 @@ Paypal : https://www.paypal.com/paypalme/3301j?country.x=US&locale.x=en_US
 
 Dont know what your doing? Need help? 
 
+Want to save the planet and world?
+
 Email at moddarkrevolt@gmail.com
 
 
